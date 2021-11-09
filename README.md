@@ -8,7 +8,7 @@
 
 |**시연영상**|[링크](https://drive.google.com/file/d/1XDkOg3mOTG2YDgbClUFc3CHjGvJ6Axfw/view?usp=sharing)
 
-# :trophy: Sweep
+# :trophy: Sweep - 3등 수상!
 
 <img src="https://user-images.githubusercontent.com/49590389/134460603-49ca826b-1106-4a38-856a-0d16d93408c2.png" width="100%"/>
 
